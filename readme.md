@@ -1,1 +1,1 @@
-Hi hi hi
+Hello everyone. if you are reading this you are a legend.
